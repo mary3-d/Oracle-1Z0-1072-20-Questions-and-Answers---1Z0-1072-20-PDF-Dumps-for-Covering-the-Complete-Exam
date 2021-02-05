@@ -1,0 +1,1 @@
+# Oracle-1Z0-1072-20-Questions-and-Answers---1Z0-1072-20-PDF-Dumps-for-Covering-the-Complete-Exam
